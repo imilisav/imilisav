@@ -1,4 +1,4 @@
-# Hi there, my name is Ilija! 👋
+# Hi there! 👋
 
 I am a hard-worker who likes to push the limits of what I can do, with the aim to learn new things along the way! That is the only way we get better in our craft.
 
